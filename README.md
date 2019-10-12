@@ -1,2 +1,2 @@
 # testconfg
-to get a feel
+to get feelz
